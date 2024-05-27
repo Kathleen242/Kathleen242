@@ -2,7 +2,7 @@
 👀 I’m interested in photography, travel, and tech innovations.
 🌱 I’m currently learning web development and digital marketing.
 💞️ I’m looking to collaborate on creative projects and open-source software.
-📫 How to reach me: DM me here or email at kathleen242@example.com
+📫 How to reach me: DM me here or email at ternapetcars1973@rambler.ru
 😄 Pronouns: She/Her
 ⚡ Fun fact: I’ve visited over 20 countries and I’m fluent in 3 languages!
 
